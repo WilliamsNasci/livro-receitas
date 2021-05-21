@@ -1,4 +1,4 @@
-# Strogonoff de Tubarão​ :chicken:
+# Strogonoff de Frango​ :chicken:
 
 ### Ingredientes
 
